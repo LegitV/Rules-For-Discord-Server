@@ -1,5 +1,3 @@
-# Rules-For-Discord-Server #
-These Are The Rules For Our Discord Server
 •• Please Read The Rules And Please Follow It ••
 •Be respectful, civil, and welcoming.
 •No inappropriate or unsafe content.
